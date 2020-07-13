@@ -1,16 +1,13 @@
 ### Hi there 👋
+- 🔭  I’m currently working on http://www.centralizednews.org
+- 🌱  I’m currently learning basic web development and construction carpentry
+- 👯  I’m looking to collaborate on YouTube videos
+- 🤔  I’m looking for help with life
+- 💬  Ask me about green tea
+- 📫  How to reach me: [andrew@centralizednews.org](mailto:andrew@centralizednews.org)
+- 😄  Pronouns: He, him, it, legend, uncle
+- ⚡  Fun fact: I love monkeys
 
-<!--
-**DrewWilson04/DrewWilson04** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+- Im 16
+- Hey my name is Drew Wilson, I'm 16, I work for http://www.centralizednews.org, and am in an organization called Green Tea
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
