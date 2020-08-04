@@ -5,7 +5,7 @@
 - 🤔  I’m looking for help with life
 - 💬  Ask me about green tea
 - 📫  How to reach me: [andrew@centralizednews.org](mailto:andrew@centralizednews.org)
-- 😄  Pronouns: He, him, it, legend, uncle
+- 😄  Pronouns: He, him, it
 - ⚡  Fun fact: I love monkeys
 
 - Im 16
