@@ -9,5 +9,5 @@
 - ⚡  Fun fact: I love monkeys and the ocean
 
 - Im 16
-- Hey my name is Drew Wilson, I'm 16, I am learning python right now and im also in an organization called Green Tea!
+- Hey my name is Drew Wilson, I'm 16, I am learning python right now!
 
