@@ -1,13 +1,18 @@
-### Hi there 👋
-- 🔭  I’m currently working on learning python
-- 🌱  I’m currently learning basic web development 
-- 👯  I’m looking to collaborate on anything really
-- 🤔  I’m looking for help with life
-- 💬  Ask me about anything
-- 📫  How to reach me: [drewwilson2022@gmail.com](mailto:drewwilson2022@gmail.com)
-- 😄  Pronouns: He, him, it
-- ⚡  Fun fact: I love monkeys and the ocean
+### What up 
+My names Andrew (Drew). I am 16 and from the Dayton Ohio area. I'm in trade school for construction and I am learning to code on the side.
+I strongly belive in internet privacy and it's importance. I am currently working on Siddes, a privacy based socail media and many more projects!
+I'm currently working as a window cleaner. I really like the ocean, so that's something I guess, haha. Reach out, I'm always down to do collaberations!
 
-- Im 16
-- Hey my name is Drew Wilson, I'm 16, I am learning python right now!
 
+My socials:
+
+[Instagram](https://instagram.com/thetrudrewwilson)
+
+[Siddes](https://siddes.com/x)
+
+
+My persoal [website](https://drewwilson.club)
+
+Get in touch!
+
+drewwilson2022@gmail.com
