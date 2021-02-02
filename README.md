@@ -15,6 +15,10 @@ Hey! My name is (An)drew, im from Ohio. I'm a window cleaner and am in school to
 
 [Siddes](https://siddes.com/x)
 
+[Medium](https://medium.com/@andrewwilson7)
+
+[Fiverr](https://www.fiverr.com/drewwilson)
+
 [Website](https://drewwilson.club)
 
 drewwilson2022@gmail.com
