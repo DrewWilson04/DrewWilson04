@@ -19,6 +19,6 @@ Hey! My name is (An)drew, im from Ohio. I'm a window cleaner and am in school to
 
 [Fiverr](https://www.fiverr.com/drewwilson)
 
-[Website](https://drewwilson.club)
+[Website](https://drew.cx)
 
 drewwilson2022@gmail.com
