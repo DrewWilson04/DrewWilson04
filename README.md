@@ -5,7 +5,7 @@ I am currently working on [Cryzza](https://cryzza.com) which will make trading c
 
 **Reach out/connect with me:**
 
-[Instagram](https://instagram.com/thetrudrewwilson)
+[Instaham](https://instagram.com/thetrudrewwilson)
 
 [Medium](https://medium.com/@andrewwilson7)
 
