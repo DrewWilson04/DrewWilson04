@@ -1,16 +1,12 @@
-Hey! My name is (An)drew, im from Ohio. I'm a carpenter and window cleaner. I like to code on the side as well. Some things about me are that I love the ocean and sports. I graduate in 2022 and hope to go to college for computer science.
+Hey! My name is (An)drew, im from Ohio. I work for a home remodeling company. I am a Senior in High School, some things about me are that I love the ocean and the weather. I'm interested in Artificial Intelligence and the blockchain. 
 
 
-I am currently working on [Cryzza](https://cryzza.com) which will make trading crypto cooler, more efficient, cost less, and safer.
+I am currently working on rockets to study and collect data on tornadoes and tropical weather.
 
 **Reach out/connect with me:**
 
-[Instaham](https://instagram.com/thetrudrewwilson)
+[Instagram](https://instagram.com/thetrudrewwilson)
 
-[Medium](https://medium.com/@andrewwilson7)
-
-[Fiverr](https://www.fiverr.com/drewwilson)
-
-[Website](https://drew.cx)
+[My website](https://drew.cx)
 
 hi@drew.cx
