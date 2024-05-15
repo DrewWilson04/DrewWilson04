@@ -9,4 +9,4 @@ Hey! My name is (An)drew, im from Ohio. I am currently working on collecting wea
 
 [My website](https://drew.cx)
 
-hi@drew.cx
+drewwilson2022@gmail.com
