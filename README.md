@@ -1,7 +1,7 @@
-Hey! My name is (An)drew, im from Ohio. I work for a home remodeling company. I am a Senior in High School, some things about me are that I love the ocean and the weather. I'm interested in Artificial Intelligence and the blockchain. 
+Hey! My name is (An)drew, im from Ohio. I am currently working on collecting weather data, by launching rockets with data collection devices installed, to help better understand the weather and to help better predict the weather. I am also in the process of starting a vodka and whiskey company, [biciktyl](https://bicikyl.com/future). I speak English, but am in the process of learning Spanish. I have been to 19 different countries and 23 different states. 
 
 
-I am currently working on rockets to study and collect data on tornadoes and tropical weather and am working on building a completely electric, carbon fiber car.
+
 
 **Reach out/connect with me:**
 
