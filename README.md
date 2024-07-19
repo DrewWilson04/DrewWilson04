@@ -1,4 +1,9 @@
-Hey! My name is (An)drew, im from Ohio. I am currently working on collecting weather data, by launching rockets with data collection devices installed, to help better understand the weather and to help better predict the weather. I am also in the process of starting a vodka and whiskey company, [bicikyl](https://bicikyl.com/future). I speak English, but am in the process of learning Spanish. I have been to 22 different countries and 23 different states. 
+Hey! My name is (An)drew, I'm from Ohio. 
+I am the CMO and Social Media Manager for [EAL Arcade](https://ealarcade.com). 
+
+In my free time I am working on launching weather data collection rockets, to better predict weather, and understand it better. I am also working on starting a distillery, [bicikyl](https://bicikyl.com/future), where we will distill vodkas and whiskeys. 
+
+I speak English, but am in the process of learning Spanish and I have been to 22 different countries and 23 different US states. 
 
 
 
@@ -10,3 +15,7 @@ Hey! My name is (An)drew, im from Ohio. I am currently working on collecting wea
 [My website](https://drew.cx)
 
 drewwilson2022@gmail.com
+
+[EAL Arcade](https://ealarcade.com)
+
+[bicikyl](https://bicikyl.com)
