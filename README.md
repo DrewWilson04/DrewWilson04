@@ -1,21 +1,12 @@
 Hey! My name is (An)drew, I'm from Ohio. 
-I am one of three co-founders for [EAL Arcade](https://ealarcade.com). 
+I am working on random projects for now, nothing planned for now.
 
-In my free time I am working on launching weather data collection rockets, to better predict weather, and understand it better. I am also working on starting a distillery, [bicikyl](https://bicikyl.com/future), where we will distill vodkas and whiskeys. 
-
-I speak English, but am in the process of learning Spanish and I have been to 22 different countries and 23 different US states. 
-
+In my free time I love to go to the gym, travel and golf. My main form of employment is for a window cleaning company, I am trying to learn more about drones and rockets as of now. I am in the process of learning Spanish and a bit of German. I have been to 25 different countries and 25 different states. I love hiking and mountain scenery. 
 
 
 
 **Reach out/connect with me:**
 
-[Instagram](https://instagram.com/thetrudrewwilson)
-
 [My website](https://drew.cx)
 
 drewwilson2022@gmail.com
-
-[EAL Arcade](https://ealarcade.com)
-
-[bicikyl](https://bicikyl.com)
